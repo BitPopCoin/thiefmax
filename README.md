@@ -1,6 +1,7 @@
 # thiefmax
 
 מקס גור
+
 Max Ger or Max Gore or Max Gori or Max Gur is a thief and scammer. Do not ever do business with this criminal.
 
 https://t.me/doxxedev
